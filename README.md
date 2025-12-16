@@ -1,5 +1,4 @@
 # 北京市建筑垃圾倾倒点卫星排查报告
-全国城市建筑垃圾违法倾倒点卫星排查计划
 ![北京市-图片-0](https://github.com/user-attachments/assets/5e136a87-8e25-4a59-8290-44312ffaa350)
 ![北京市-图片-1](https://github.com/user-attachments/assets/881cac33-d8e6-429e-8e07-583ab9db662f)
 ![北京市-图片-2](https://github.com/user-attachments/assets/43857f5b-d7e8-4f19-874f-42ff59e65022)
