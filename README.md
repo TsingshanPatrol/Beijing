@@ -1,2 +1,16 @@
 # Beijing
 全国城市建筑垃圾违法倾倒点卫星排查计划
+![北京市-图片-0](https://github.com/user-attachments/assets/5e136a87-8e25-4a59-8290-44312ffaa350)
+![北京市-图片-1](https://github.com/user-attachments/assets/881cac33-d8e6-429e-8e07-583ab9db662f)
+![北京市-图片-2](https://github.com/user-attachments/assets/43857f5b-d7e8-4f19-874f-42ff59e65022)
+![北京市-图片-3](https://github.com/user-attachments/assets/eb597036-7948-48fa-9e1e-abe4aa4b8b09)
+![北京市-图片-4](https://github.com/user-attachments/assets/30d5e95d-9771-4080-85eb-66e10267d3b4)
+![北京市-图片-5](https://github.com/user-attachments/assets/5e5e8e3a-d2e4-4225-abb6-0776696cfa55)
+![北京市-图片-6](https://github.com/user-attachments/assets/25f022ac-007c-4883-a76a-5dfbbe79dbd1)
+![北京市-图片-7](https://github.com/user-attachments/assets/ff8155fb-a7fc-4c25-b04c-0bb75e51775f)
+![北京市-图片-8](https://github.com/user-attachments/assets/69390a48-013e-43a9-ad30-e03d314df228)
+![北京市-图片-9](https://github.com/user-attachments/assets/865046c9-a742-42e8-9f7c-2a2ac49d3a61)
+![北京市-图片-10](https://github.com/user-attachments/assets/750009b3-fbd9-4fb0-a75f-1b952168349a)
+![北京市-图片-11](https://github.com/user-attachments/assets/989f7086-cd82-49dc-9650-486a79f5f204)
+![北京市-图片-12](https://github.com/user-attachments/assets/807adc73-3dad-407e-be5e-8a88cd8781d1)
+![北京市-图片-13](https://github.com/user-attachments/assets/43de3322-6e64-4409-bf17-1a22551772fe)
